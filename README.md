@@ -1,4 +1,4 @@
-# superCryptoCurrency-MADrek5K
+# MADrek5K
 super-cryptocurrency, schizo-currency, SLM
 
 second super-cryptocurrency in the world
